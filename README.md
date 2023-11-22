@@ -6,7 +6,7 @@ Looking for job after graduation! (June 2024)
 
 Email: 
 - albert475000@gmail.com
-- albert.huang@mail.utoronto.ca
+- albert.huang@mail.utoronto.ca  
 Linkedin:
 - https://www.linkedin.com/in/albert-huang-836095195/
   
